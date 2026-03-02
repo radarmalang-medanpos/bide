@@ -1,0 +1,2 @@
+# bide
+PASTI PASTI PASTI MENANG
